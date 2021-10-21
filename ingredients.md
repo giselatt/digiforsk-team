@@ -3,4 +3,7 @@
 - egg
 - smør
 - salt
-- pepper
+- pepper (valgfritt)
+- melk eller fløte
+
+Men jeg er faktisk usikker hvordan eggerøre skal lages.  Kanskje du kan hjelpe, Naomi?
