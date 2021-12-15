@@ -17,5 +17,3 @@ Men jeg er faktisk usikker hvordan eggerøre skal lages.  Kanskje du kan hjelpe,
 7. når konsistans blir som du ønsker, er det ferdig! 
 
 Vær så god, da bare smak! おいしいよ！
-
-Det ser ut som om det virker.
